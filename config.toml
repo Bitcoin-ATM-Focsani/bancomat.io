@@ -1,0 +1,4 @@
+baseURL = 'https://bancomat.io/'
+languageCode = 'ro-ro'
+title = 'Bitcoin ATM Focsani'
+theme = "ananke"
