@@ -24,7 +24,7 @@ Inițial am crezut ca babuta glumește, dar nu era de loc asa
  - [B1 TV](https://www.b1tv.ro/stiri-locale/afacerea-anului-in-vrancea-o-femeie-a-incercat-sa-si-vanda-capra-pe-un-bitcoin-in-centrul-focsaniului-1232255.html)
  - [Stirile Kanal D](https://www.stirilekanald.ro/capra-la-schimb-pe-un-bitcoin-20270478)
  - [WOWBiz](https://www.wowbiz.ro/o-femeie-si-a-dus-capra-la-un-bancomat-din-focsani-sa-o-schimbe-pe-bitcoin-capra-mea-da-si-lapte-vrei-sa-o-probam-20270645)
- - [Romania TV]https://www.romaniatv.net/scene-incredibile-in-focsani-o-femeie-a-vrut-sa-si-schimbe-capra-pe-un-bitcoin-localnicii-au-fost-cei-care-au-surprins-o-cu-animalul-in-fata-bancomatului_7006501.html
+ - [Romania TV site](https://www.romaniatv.net/scene-incredibile-in-focsani-o-femeie-a-vrut-sa-si-schimbe-capra-pe-un-bitcoin-localnicii-au-fost-cei-care-au-surprins-o-cu-animalul-in-fata-bancomatului_7006501.html)
  - [Romania TV](https://www.youtube.com/watch?v=lLRCQnC0iak)
  - [Antena 3](https://www.antena3.ro/actualitate/locale/pensionara-vanzare-capra-bancomat-bitcoin-oras-focsani-elon-musk-industria-cripto-658179.html)
  - [Ziarul de Iasi](https://www.ziaruldeiasi.ro/stiri/video-o-babuta-a-incercat-sa-vanda-o-capra-pe-un-bitcoin-in-centrul-focsaniului--339110.html)
